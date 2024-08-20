@@ -3,4 +3,4 @@
 - Eu amo praticar esporter
 - Eu amo cachorros
 - Amo aprender coisas novas
-- Sou um fdp que loga o github no pc da fiap, corno desgracado
+- é meme irmao, mas arruma isso ai pq fica logado e a rapaziada nao consegue commitar tmj
